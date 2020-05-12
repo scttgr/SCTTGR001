@@ -25,9 +25,6 @@ The label’s powerful first release features tracks exclusively produced by A.M
 Oracle-esque titled 'demobld ep' contains 4 heavy techno banger. A side comes with 'a.out' and 'segfault' by A.Mochi. As you can expect, he has built concrete and tense soundscape to blow out the peak time dance floor again.
 TTTT’s 'emp' and 'dept' on the flip side have more trancy and melancholic feel. The artist reckons they may remind you of peculiar Japanese landscape that have both historic wooden architecture and very modern & hi-tech skyscrapers mixed together.
 
-BUY!
-https://scttgr.bandcamp.com/album/demobld-ep
-
 
 [official](https://scttgr.com/)  
 [facebook](https://www.facebook.com/scttgr/)  
